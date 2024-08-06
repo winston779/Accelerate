@@ -1,6 +1,6 @@
 # 华夏联盟机场官网地址
 
-最新地址：[trx1.cyou](https://wwn.trx1.cyou/#/register?code=vfAYSXw2)
+最新地址：[trx1.cyou](https://wwn.trx1.cyou/index.php#/register?code=vfAYSXw2)
 
 ## 华夏联盟介绍
 
